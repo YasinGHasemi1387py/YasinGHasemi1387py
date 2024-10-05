@@ -1,0 +1,6 @@
+- 👋 Hi, I’m yasin ghasemi
+- - 👀 I’m interested in python/c#/htmls-css/java script
+- 🌱 I’m currently learning c#
+- 💞️ I’m looking to collaborate on vigiato (im a idiot so its a really impossible wish of mine)
+- 📫 How to reach me: gmail = your5dad6666@gmail.com // instagram = yasin.ghasemi1387py // github (your already here) yasinGHasemi1387py
+- 😄 Pronouns: he/him/idiot
